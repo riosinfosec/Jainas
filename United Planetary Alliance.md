@@ -1,0 +1,1 @@
+Main government, oppressive
